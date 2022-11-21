@@ -21,4 +21,3 @@ Dancing is the no. 1 hobby that I LOVE to do. Ever since I was a child, I alread
 ## Wattpad Stories that I've read:
 ![alt text](https://img.wattpad.com/cover/276526187-352-k652157.jpg)
 ![alt text](https://i.gr-assets.com/images/S/compressed.photo.goodreads.com/books/1387299594l/19540454.jpg)
-[README.txt](https://github.com/actuaxcrl/actuaxcrl.github.io/files/10053776/README.txt)
