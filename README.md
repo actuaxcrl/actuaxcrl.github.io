@@ -10,7 +10,7 @@ Hello po! I'm Mary, a student from Ateneo de Naga University, a Eccedentesiast &
 
 ![alt text](https://i.scdn.co/image/ab67616d00001e02f86b8fb3fd8592686ce8401e)
 
---- <iframe width="560" height="315" src="https://www.youtube.com/embed/rNQpgck3LG8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+https://youtu.be/rNQpgck3LG8
 
 ## My Favorite Hobby
 ![alt text](https://www.sanjac.edu/sites/default/files/styles/1440x540/public/media-images/2020-05/Dance_performance_class_banner.jpg?h=9aa1cd1b&itok=eyzLMHkZ)
