@@ -1,6 +1,9 @@
 # actuaxcrl.github.io
 ## Welcome to Mary's Github Page! 
 Hello po! I'm Mary, a student from Ateneo de Naga University, a Eccedentesiast & Slubberdegullion
+Some of my friends call me "Jollibee" because of my second name that looks like the name jollibee. So I just embraced that name and I'm happy because it also give them smiles in their faces whenever they hear that name "Jollibee". <33
+
+"Jan 14-15" :heart: fav date
 
 
 **[JHS PORTAL](https://jhsportal.adnu.edu.ph/)**
@@ -21,3 +24,4 @@ Dancing is the no. 1 hobby that I LOVE to do. Ever since I was a child, I alread
 ## Wattpad Stories that I've read:
 ![alt text](https://img.wattpad.com/cover/276526187-352-k652157.jpg)
 ![alt text](https://i.gr-assets.com/images/S/compressed.photo.goodreads.com/books/1387299594l/19540454.jpg)
+
