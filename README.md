@@ -21,7 +21,10 @@ https://youtu.be/rNQpgck3LG8
 
 Dancing is the no. 1 hobby that I LOVE to do. Ever since I was a child, I already started dancing until now. When my mom knew this talent of mine, mom was over the moon of hapinness and excitement. It's only the talent that I always brag to my friends. Sometimes I joined some intermission numbers for my family's events. Also, I was part of our dance troup or "modern dancers" of my school in grade school (starting 1st - 6th grade). Dancing strenghtens my confidence, it is my source of expressing my emotions or feelings.
 
-## Wattpad Stories that I've read:
-![alt text](https://img.wattpad.com/cover/276526187-352-k652157.jpg)
-![alt text](https://i.gr-assets.com/images/S/compressed.photo.goodreads.com/books/1387299594l/19540454.jpg)
+## Movies/series that I've watched:
+- Maleficent 1 and 2
+- Sunrise in Heaven
+- Goblin
+- Squid Game
 
+I'm more interested in watching love-sad-adventure stories, idk why maybe because it's so fun to watch.. Watching movies also makes me calm and reduce my stress. 
